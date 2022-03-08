@@ -6,7 +6,7 @@ I'm passionate about technology and helping out others. Drop me a message, let's
 
 ## What are your primary goals as a human being?
 
-Happiness. it doesn't matter what gets me up in the morning, as long as I'm happy doing it. Right now it's my family and learning about Web Development.
+- Happiness. it doesn't matter what gets me up in the morning, as long as I'm happy doing it. Right now it's my family and learning about Web Development.
 
 ## What do you want us to know about your communication style?
 
