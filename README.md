@@ -44,7 +44,7 @@ Drop me a message, let's connect!
 ## What are your pet peeves?
 
 - Unclear thoughts or too much subjectiveness. I'm more of an objective person.
-- Talking behind my back :/ Please, do it in front of me! Ideally, while drinking a coffee (or tea, if you're a team person. I can adjust!)
+- Talking behind my back :/ Please, do it in front of me! Ideally, while drinking a coffee (or tea, if you're a tea person. I can adjust!)
 
 ## What are your self-perceived biggest shortcomings?
 
